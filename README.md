@@ -1,1 +1,1 @@
-CV Project RS School
+https://miroslav-zarenkov.github.io/rsschool-cv/cv
